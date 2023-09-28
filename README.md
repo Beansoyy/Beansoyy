@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Beansoyy
+- 👀 I’m interested in reading books
+- 🌱 I’m currently learning Applied Mathematics
+- 💞️ I’m looking to collaborate on making codes
+- 📫 How to reach me contact me through my email rpcobrado@up.edu.ph
